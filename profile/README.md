@@ -1,6 +1,6 @@
 # 🜁 AVRAXEL™ CONSOLIDATED
 ## **Pillar ID:** 00 — CONSOLIDATED
-### *AVRAXEL™ ecosystem's secondary meta pillar: The ministry of law and continuity, overseeing governance, compliance, and structural integrity.*
+### *AVRAXEL™ ecosystem's meta pillar: The ministry of law and continuity, overseeing governance, compliance, and structural integrity.*
 
 ---
 
